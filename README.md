@@ -6,7 +6,13 @@
 <br> 
 <br> 
 <br>
+<p align="center"> 
 
+<img width="170" height="170" alt="image" src="https://github.com/user-attachments/assets/b1160edc-c0bd-4c69-a81d-2c6b2b499a70" />
+
+<br> 
+<br>
+<div align="center"
 <div align="center">
 
 ![IMG_3795](https://github.com/user-attachments/assets/59df305c-3294-43ac-b951-de611b7b0080)

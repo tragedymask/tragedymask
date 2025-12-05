@@ -6,7 +6,8 @@
 <br> 
 <br> 
 
-![image](https://github.com/user-attachments/assets/54f86390-81cd-4b2d-8302-0ea26354fdf3)
+<img width="1200" height="909" alt="image" src="https://github.com/user-attachments/assets/6d1febce-83b7-412a-9b77-79a431642085" />
+
 
 
 

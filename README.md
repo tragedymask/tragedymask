@@ -1,21 +1,8 @@
-<br> 
-<br> 
 
->  <p align="center">  ''  &nbsp;  &nbsp; &nbsp; Ah, the thrill of the kill &nbsp;  &nbsp; &nbsp;  ,, </p>
-<br> 
-<br> 
-<br> 
-<br>
-<p align="center"> 
 
-<img width="170" height="170" alt="image" src="https://github.com/user-attachments/assets/b1160edc-c0bd-4c69-a81d-2c6b2b499a70" />
-
-<br> 
-<br>
-<div align="center"
 <div align="center">
-
-![IMG_3795](https://github.com/user-attachments/assets/59df305c-3294-43ac-b951-de611b7b0080)
+  
+<img width="795" height="900" alt="image" src="https://github.com/user-attachments/assets/34ae9cc2-bb9c-443b-b72d-e428397b5293" />
 
 
 

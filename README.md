@@ -6,11 +6,8 @@
 <br> 
 
 <div align="center">
-  
-<img width="695" height="700" alt="image" src="https://github.com/user-attachments/assets/34ae9cc2-bb9c-443b-b72d-e428397b5293" />
 
-
-
+ ![image](https://github.com/user-attachments/assets/3a714228-a33b-4196-a400-36f4fae00ab2)
 
 
 

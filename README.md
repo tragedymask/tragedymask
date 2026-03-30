@@ -4,7 +4,7 @@
 <img width="1280" height="1280" alt="image" src="https://github.com/user-attachments/assets/97805712-aa4f-4f9e-9661-7440137456a1" />
 
 # And the universe said I love you, because you were love itself.
-
+my name is mtc i really like midnighttraged CAN SOMEONE TEACH ME HOW TO MAKE A GITHUB
 ## ' you have NO PERSONALITY! all you do is TYPE MIDNIGHTTRAGEDY ! '
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/18f219a9-11f8-4306-9d9c-8ad952891f5d" />
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/7be35ee2-aa2e-4c5a-bd4e-834aa4deb243" />

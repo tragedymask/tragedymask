@@ -2,15 +2,14 @@
 <img width="1280" height="1280" alt="image" src="https://github.com/user-attachments/assets/12d5ee4e-ebab-4560-bc95-9f9cb1e1de4b" />
 <img width="1280" height="1280" alt="image" src="https://github.com/user-attachments/assets/2ea91736-3c54-499f-8361-79a5577bb8df" />
 <img width="1280" height="1280" alt="image" src="https://github.com/user-attachments/assets/97805712-aa4f-4f9e-9661-7440137456a1" />
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&width=435&lines=i+love+you%2C+astro.;and+I+love+you%2C+Dazzle.+%3C3" alt="Typing SVG" /></a>
-<div align="center">
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fredoka+One&pause=1000&width=435&lines=%22...+Astro%2C+do+you+know+how+much+I+love+you%3F%22)](https://git.io/typing-svg)
 # And the universe said I love you, because you were love itself.
 </div>
 <div align="center">
 my name is mtc i really like midnighttraged CAN SOMEONE TEACH ME HOW TO MAKE A GITHUB
 </div>
 <div align="center">
-## ' you have NO PERSONALITY! all you do is TYPE MIDNIGHTTRAGEDY ! '
+##' you have NO PERSONALITY! all you do is TYPE MIDNIGHTTRAGEDY ! '
 </div>
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/18f219a9-11f8-4306-9d9c-8ad952891f5d" />
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/7be35ee2-aa2e-4c5a-bd4e-834aa4deb243" />

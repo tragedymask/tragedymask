@@ -31,6 +31,7 @@
 </p>
 <p align="center">
   . • `         @ astro kin     ㅤ═       dazzle kin!
+</p>
 <p align="center">
   <img width="780" height="780" alt="image" src="https://github.com/user-attachments/assets/3db1bc6d-4e98-47e0-b04e-abe13c81b1d1" />
 </p>

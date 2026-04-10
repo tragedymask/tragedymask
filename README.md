@@ -13,12 +13,18 @@
 <p align="center">
                     ֪    ◟  𓏼  ͡ ֪      ◝◞  ྀི︶˚̣̣̣
              ◜⑅     MTC     ͜◞      ꒱     all prns !
+  <p align="center">
+    <img width="400" height="100" alt="image" src="https://github.com/user-attachments/assets/3b381d5b-be32-4897-a173-fd11c8047e3c" />
+  </p>
 </p>
 <p align="center">
 ♰⠀   𓈒  ⠀midnighttragedys n1 fan!⠀ ﾉ⠀always iwc unl friend!   ✙
 </p>
 <p align="center">
   ᵕㅤmidnighttragedy h8ers dniㅤ┄ㅤastro x squirm also dni﹒ㅤ ℐ
+</p>
+<p align="center">
+<img width="350" height="19" alt="image" src="https://github.com/user-attachments/assets/878190f1-bc76-48f6-8870-adfcdbd04fe7" />
 </p>
 <p align="center">
   ｡      readme art by me!     sys !     ︵︵

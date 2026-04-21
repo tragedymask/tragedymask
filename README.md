@@ -1,3 +1,4 @@
+<p align="center">
   <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fredoka+One&pause=1000&color=96F2F7&center=true&width=435&lines=Astro%2C+could+I...+kiss+you%3F;Youre+acting+like+I'd+say+no.;...+Could+I%3F;Next+time%2C+don't+ask.+It's+a+YES." alt="Typing SVG" /></a>
 </p>
 <p align="center">
